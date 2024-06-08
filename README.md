@@ -5,4 +5,4 @@
 **View the course on my** [Github Pages Website]()
 
 **If you want to keep the course going then please<br>
-consider donating to me on PayPal:**
+consider donating to me on CashApp: Contact me and i'll send my CashApp.**
