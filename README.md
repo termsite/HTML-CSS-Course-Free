@@ -3,3 +3,6 @@
 ***Contact And Socials:*** [Discord Server](https://discord.gg/XMDg5DHSwe) [Youtube Channel](https://www.youtube.com/@AlixiirStudios)
 
 **View the course on my** [Github Pages Website]()
+
+**If you want to keep the course going then please<br>
+consider donating to me on Cashapp @kseeley9**
