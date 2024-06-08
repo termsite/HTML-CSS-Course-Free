@@ -1,7 +1,4 @@
 # FREE HTML AND CSS COURSE!
 
-***Contact And Socials:***
+***Contact And Socials:*** [Discord Server](https://discord.gg/XMDg5DHSwe) [Youtube Channel](https://www.youtube.com/@AlixiirStudios)
 
-__https://discord.gg/XMDg5DHSwe__
-
-__https://www.youtube.com/@AlixiirStudios__
